@@ -102,6 +102,55 @@
 
 <p style="margin-left:35.45pt">Метод эффективен на 100%, главное использовать предложенную ссылку для регистрации. Если возникнут затруднения, пишите в комментариях, и мы предложим решение проблемы.</p>
 
+
+<ol>
+	<li>
+	<p>http://detstvo.ru/forum/professiya-mama/56895-world-tanks.html</p>
+	</li>
+	<li>
+	<p>https://www.okna55.ru/phpBB3/viewtopic.php?f=22&amp;t=55895</p>
+	</li>
+	<li>
+	<p>http://vld.best-city.ru/forum/thread58300/</p>
+	</li>
+	<li>
+	<p>http://forum.mobiset.ru/viewtopic.php?t=33877</p>
+	</li>
+	<li>
+	<p>http://www.vladimir.ru/forum/forum/thread/22820</p>
+	</li>
+	<li>
+	<p>https://forum.boyarka.net/viewtopic.php?f=38&amp;t=6902</p>
+	</li>
+	<li>
+	<p>http://krd.best-city.ru/forum/thread42014/</p>
+	</li>
+	<li>
+	<p>http://ifoxy.ru/viewtopic.php?f=37&amp;t=26132</p>
+	</li>
+	<li>
+	<p>http://vrn.best-city.ru/forum/thread540025110/</p>
+	</li>
+	<li>
+	<p>http://mockwa.com/forum/thread-107463/</p>
+	</li>
+	<li>
+	<p>http://che.best-city.ru/forum/thread47307/</p>
+	</li>
+	<li>
+	<p>http://rak.flyboard.ru/topic10549.html</p>
+	</li>
+	<li>
+	<p>http://detimgn.iboards.ru/viewtopic.php?f=64&amp;t=23843</p>
+	</li>
+	<li>
+	<p>http://dietolog.com.ua/forum/viewtopic.php?t=63122</p>
+	</li>
+</ol>
+
+
+
+
 <h2>Зарегистрируйтесь в World of Tanks, используя КОД ПРИГЛАШЕНИЯ</h2>
 
 <p style="margin-left:35.45pt">Вам нужно использовать предложенную схему:</p>
